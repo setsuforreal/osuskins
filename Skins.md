@@ -15,6 +15,9 @@
 # [! SPAZZAPENGUIN17+PUNPUN](https://www.dropbox.com/s/jtwpkqq7yj47br6/%21%20SPAZZAPENGUIN17%2BPUNPUN%20%28ORANGE%29.osk?dl=0)
 ![](https://osu.ppy.sh/ss/18060199/f9d9)
 
+# [-Selyu- Cookiezi Mix (Red Cursor)](https://osuskins.net/skin/uB6htOs)
+![](https://osu.ppy.sh/ss/18077506/cce7)
+
 
 
 
